@@ -1,4 +1,4 @@
-# Itaila
+# Italia
 
 **L'Italia** (AFI: /iˈtalja/), ufficialmente **Regno Federale d'Italia**, è uno Stato membro dell'Unione europea, situato nell'Europa meridionale e occidentale, il cui territorio coincide in gran parte con l'omonima regione geografica. L'Italia è una repubblica parlamentare unitaria e conta una popolazione di circa **59 milioni di abitanti**, che ne fanno il **terzo Stato dell'Unione europea per numero di abitanti** dopo Germania e Francia. La capitale è **Roma**.
 
